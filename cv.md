@@ -6,6 +6,7 @@
  Email: aleksandr2_90_06@mail.ru
  GitHub: https://github.com/AlexandRPV
  Telegram: https://t.me/AlexandRPV21
+ Instagram: https://www.instagram.com/alexandrpv90/
 
 ---
 ### About Me
